@@ -2,7 +2,7 @@
 
 I'm a Software Engineer 👨🏻‍💻 with a Computer Science background degree and 8+ years of experience in software development.
 
-Throughout these years I've been working for several startups and companies 🏢 with small to large size projects helping to create innovative products in record time to market, which has allowed me to learn and understand how startups, companies and people work and think, having to adapt to the different moments they are going through. This has also given me the opportunity to work with teams distributed around the world 🌎 and achieve a greater impact on productivity and personal and professional growth.
+Throughout these years I've been working for several startups and companies 🏢 with small to large size projects helping to create innovative products in record time to market, which has allowed me to learn and understand how startups, companies and people work and think, having to adapt to the different moments they were going through. This has also given me the opportunity to work with distributed teams around the world 🌎 and achieve a greater impact on productivity and personal and professional growth.
 
 I love creating strong ties with colleagues, teammates and the people I work with, where respect, trust and transparency prevail. 🤜🤛
 
